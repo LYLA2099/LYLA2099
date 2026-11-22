@@ -1,5 +1,5 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=20&letterSpacing=30%25&pause=100&color=58313D&center=true&vCenter=true&width=435&lines=Biggest+Lyla+kinnie" alt="Typing SVG" /></a>
-ㅤㅤㅤㅤㅤㅤ ![Alt image](https://github.com/LYLA2099/LYLA2099/blob/772874b383507cc80e881592e1d401420626b35a/70e237a6a4ef0af2bed0672933203b46.jpg)
+ㅤㅤㅤㅤㅤㅤ ![Alt image](https://github.com/LYLA2099/LYLA2099/blob/007c2f5d2b931110af0072b8c57173234ea60eae/Untitled92_20261122171843.png)
 
 <div align="center">
   <details>DNI: Racists, homo/transphobes, tiktok Christians, whitewashers, -18(unless I already know you), pedos, pro/darkshippers, dandy's world fans, HH/HB fans, Miguel O'hara haters, Gwen Stacy haters. TI: spiderdads, doubles ᴅᴏᴜ</detail> <summary><strong> DNI/THIN ICE </strong></summary>
