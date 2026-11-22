@@ -7,6 +7,6 @@
 </div>
 
 <div align="center">
-  <details>I have severe depression and anxiety disorder which means I often have dni or dniuf I can also be quiet and afk because I don't have motivation, I have hard time understanding things and I suck at wording things (sorry about that I promise I will work on it better) I can be rude sometimes (again I'm sorry if I am and I will always apologize), I sometimes talk about Miguel O'hara way too much ^^" (you can tell me to shut up I won't get offended DW)</detail> <summary><strong> BYI </strong></summary>
+  <details>I have severe depression and anxiety disorder which means I often have dni or dniuf I can also be quiet and afk because I don't have motivation, I have hard time understanding things and I suck at wording things (sorry about that I promise I will work on it better but it might take time because I have learning disability) I can be rude sometimes (again I'm sorry if I am and I will fix my attitude and I promise to always apologize), I sometimes talk about Miguel O'hara way too much ^^" (you can tell me to shut up I won't get offended DW)</detail> <summary><strong> BYI </strong></summary>
 </details>
 </div>
