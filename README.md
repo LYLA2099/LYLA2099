@@ -1,8 +1,13 @@
 ![Alt image](https://github.com/LYLA2099/LYLA2099/blob/0263ff64e58e967bc67ec9e79274e2c35b138500/Tumblr_l_379526814539002.jpg)
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=20&letterSpacing=30%25&pause=100&color=84C2BE&center=true&vCenter=true&width=435&lines=Biggest+Lyla+kinnie" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=40&letterSpacing=30%25&pause=100&color=D8C7F0&center=true&vCenter=true&width=435&lines=Biggest+Lyla+kinnie" alt="Typing SVG" /></a>
 ㅤㅤㅤㅤㅤㅤ ![Alt image](https://github.com/LYLA2099/LYLA2099/blob/3b543778c96af524203d31d3c45abc31c904932d/Untitled92_20261126210034.png)
+
+<div align="center">
+  <details>I'm 20 years old "omg eww you're 20? go to 18+ server then!" -yea sorry can't I'm banned there.. I'm pansexual and genderfluid (she/he/they), I kin Lyla (every ver), I'm in fictional marriega with Miguel O'hara (obv it's a dumb joke but I'm fr when it comes up to that man), I think Erling Braut Haaland is butch lesbian</detail> <summary><strong> 🕸️ABT ME </strong></summary>
+</details>
+</div>
 
 <div align="center">
   <details>DNI: Racists, homo/transphobes, tiktok Christians, whitewashers, -18(unless I already know you), pedos, pro/darkshippers, dandy's world fans, HH/HB fans, Miguel O'hara haters, Gwen Stacy haters. TI: spiderdads, doubles</detail> <summary><strong> 👾DNI/THIN ICE👾 </strong></summary>
